@@ -1,0 +1,4 @@
+- Hi, I'm Soham Patel.
+- I'm intrested in coding, and gaming.
+- I'm currently pursing my postgraduation in Computer Science from CSMSS College of Polytechnic,Aurangabad,Maharastra.
+- You can contact me on my E-mail ---> sohamdpatel12@gmail.com
